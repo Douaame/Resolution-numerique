@@ -1,0 +1,1 @@
+# R-solution-num-rique-de-l-quation-f-x-0
